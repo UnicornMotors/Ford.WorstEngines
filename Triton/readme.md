@@ -3,6 +3,8 @@ sch:
 https://www.youtube.com/results?search_query=ford+3+valve+5.4+problems
 
 ## Car Wizard
+[What really happens inside a Ford 5.4L 3 valve! Let the CAR WIZARD show just how bad it gets](https://youtu.be/HgwHiLCT3vk)
+
 [CAR WIZARD Tears Apart the Ford 5.4 3 Valve V8](https://youtu.be/xcN_WcGr4BU)
 - The CAR WIZARD shares his reasons for why the 3 VALVE 5.4L Ford V8 is the worst engine on the road today!
 
